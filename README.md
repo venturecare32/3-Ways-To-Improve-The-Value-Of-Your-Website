@@ -1,4 +1,5 @@
 # 3-Ways-To-Improve-The-Value-Of-Your-Website
+<img src="http://www.blog.venture-care.com/wp-content/uploads/2019/07/3-way-to-improve-value-of-your-website.jpg"></img><br>
 When friends come to your residence, you want to make a just right first impression correct? You wouldn’t invite individuals over for dinner with a cluttered residence and then not feed them would you? The identical will have to keep proper in your website.
  You have a short period of time to seize a visitor’s awareness. In keeping with Neilson Norman staff, customers will likely learn 20% of the words on a page. If your website is cluttered and doesn’t have a transparent message or call to motion, men and women receivers are sticking around for the predominant course.
  
